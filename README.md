@@ -4,3 +4,8 @@
 ```
 https://www.youtube.com/watch?v=VJOoLQPLvG4
 ```
+
+சதுர அடி அளவீடு
+```
+https://www.youtube.com/shorts/AQfJxiUS-1M
+```
